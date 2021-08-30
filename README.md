@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **adityabhagat707@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1vYOh6RhYft1PkTVLDGrZmdtFaLEhIfPM/view](https://drive.google.com/file/d/1vYOh6RhYft1PkTVLDGrZmdtFaLEhIfPM/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
